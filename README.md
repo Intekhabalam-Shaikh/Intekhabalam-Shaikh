@@ -1,0 +1,1 @@
+- 🌱 I am a designer, 👀 Part time coder and I am also a full-time victim of never-ending tech updates 😄
